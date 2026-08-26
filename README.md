@@ -4,7 +4,7 @@
 <b><sub>iwc/thin ice;</b></sub> <sub>under 15, dr bright users, the boys fandom, hetalia fandom</sub><br>
 <br></p>
 <p><h2 align="center">byi</h2></p>
-<p align="center">im socially stunted and may be very awkward and/or impulsive during conversation, i apologise for this in advance<br>
+<p align="center"> <!-- im socially stunted and may be very awkward and/or impulsive during conversation, i apologise for this in advance<br>
   <br>
 i have no friends in terms of actual relationships with people, im always open to make some and if you would <em>like</em> to be friends, just whisper me and let me know :)<br>
 <br>
@@ -14,4 +14,4 @@ despite me being into very nihilistic content and express very dreadfully realis
 <br>
 adding to the one above, communication is VERY IMPORTANT to me, the only thing that really ever pisses me off about someone is if theyre 1. obnoxiously arrogant and closeminded (irrelevant) or 2. they refuse to communicate and proceed to assume that i'll just somehow telepathically know whats wrong without them telling me; if you have any issues or triggers or boundaries at all that you need to set with me, just tell me!!!! (please)<br>
 <br>
-tldr; extreme gore in pt rp makes me uncomfortable, i have no friends, im autistic, and please set boundaries with me if you need to</p>
+tldr; extreme gore in pt rp makes me uncomfortable, i have no friends, im autistic, and please set boundaries with me if you need to --> being reworked</p>
