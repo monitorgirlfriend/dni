@@ -3,6 +3,6 @@
 <br>
 furries, therians, and fictkins are doing you no harm by simply existing and should not be harassed just because theyre doing what makes them happy and/or feel more comfortable in their own skin</table></details>
 <br>
-<sup>i would rather than those under 15 didnt interact with me but as long as you can be mature about stuff, then i dont mind</sup><br>
-<sup>hardcore bright defenders and/or anti-rewrite dni</sup><br>
-<sup>if you cant communicate with me in a blunt and appropriate manner (when absolutely necessary), i will most likely unfriend & block you unless we know eachother well</sup><br>
+* <sup>i would rather than those under 15 didnt interact with me but as long as you can be mature about stuff, then i dont mind</sup><br>
+* <sup>hardcore bright defenders and/or anti-rewrite dni</sup><br>
+* <sup>if you cant communicate with me in a blunt and appropriate manner (when absolutely necessary), i will most likely unfriend & block you unless we know eachother well</sup><br>
