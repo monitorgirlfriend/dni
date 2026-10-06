@@ -1,17 +1,8 @@
-<p align="center"><sup>(wip, thats why this looks so barebones)</sup><br></p>
-<p><h2 align="center">dni</h2><br></p>
-<p align="center">loli/shota/kodocons, under 13, 'pro-contact', zionists, eugenicists<br>
-<b><sub>iwc/thin ice;</b></sub> <sub>under 15, dr bright users, the boys fandom, hetalia fandom</sub><br>
-<br></p>
-<p><h2 align="center">byi</h2></p>
-<p align="center"> <!-- im socially stunted and may be very awkward and/or impulsive during conversation, i apologise for this in advance<br>
-  <br>
-i have no friends in terms of actual relationships with people, im always open to make some and if you would <em>like</em> to be friends, just whisper me and let me know :)<br>
+<details><summary>my beliefs so that if you dont like this kind of stuff, you can block me;</summary>
+<table>lesboys & turigirls are fucking awesome, shout out to lesboys and turigirls <img src="https://64.media.tumblr.com/7f321e4f9c8e91f661e058c982aea4d7/06057e811b7ae76b-56/s75x75_c1/1da5203370f626210bab91a0145fdf5dc4becbfa.pnj"/> <img src="https://64.media.tumblr.com/d283153ca7128df951c7792e21db2daa/06057e811b7ae76b-dc/s75x75_c1/ddbdd772cc1d2b6095ba286cafa6c6b4a453e36e.pnj"/><br>
 <br>
-i roleplay sometimes (only very recently began to) and mutilation or otherwise extreme violence (such as cannibalism) specifically in a party-rp makes me uncomfortable and can result in me abruptly leaving especially if nobody asked for permission from their rp partner before doing so, though there are times where i can just tolerate and ignore it when im nowhere near where the rp is taking place<br>
+furries, therians, and fictkins are doing you no harm by simply existing and should not be harassed just because theyre doing what makes them happy and/or feel more comfortable in their own skin</table></details>
 <br>
-despite me being into very nihilistic content and express very dreadfully realistic opinions or expectations about certain things, i would consider myself an optimist and may be overly hopeful and comforting towards people even if they dont necessarily need it (if i ever act this way towards you and it makes you uncomfortable, <em>PLEASE</em> dont hesitate to tell me to stop)<br>
-<br>
-adding to the one above, communication is VERY IMPORTANT to me, the only thing that really ever pisses me off about someone is if theyre 1. obnoxiously arrogant and closeminded (irrelevant) or 2. they refuse to communicate and proceed to assume that i'll just somehow telepathically know whats wrong without them telling me; if you have any issues or triggers or boundaries at all that you need to set with me, just tell me!!!! (please)<br>
-<br>
-tldr; extreme gore in pt rp makes me uncomfortable, i have no friends, im autistic, and please set boundaries with me if you need to --> being reworked</p>
+<sup>i would rather than those under 15 didnt interact with me but as long as you can be mature about stuff, then i dont mind</sup><br>
+<sup>hardcore bright defenders and/or anti-rewrite dni</sup><br>
+<sup>if you cant communicate with me in a blunt and appropriate manner (when absolutely necessary), i will most likely unfriend & block you unless we know eachother well</sup><br>
